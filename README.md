@@ -4,6 +4,7 @@
 ![](http://abali.ru/wp-content/uploads/2013/06/emblema_vysshej_shkoly_jekonomik_vshje.png)
 #### **Факультатет _гуманитарных_ наук**
 #### **Образовательная программа**: _Иностранные языки и межкультурная коммуникация_
+##### **Курс: 1**
 ##### **Группа БИЯ1711-1**
 + [личная почта](mailto:tatiana_gon@mail.ru)
 + [telegram](https://t.me/varenieizroz)
